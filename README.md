@@ -4,7 +4,7 @@
 NiceCloud 耐思云，稳定好用便宜的优质SS/SSR机场，也是入口数量极多的大带宽高速机场梯子。目前，NiceCloud在全球超过38条优质线路，其节点涵盖美国，香港，台湾，日本，韩国，新加坡，马来西亚，泰国，德国，英国，荷兰，俄罗斯，土耳其，法国等，并根据使用偏好热门地区不断增加中。完美支持ChatGPT与Tiktok、Netflix、Disney、HULU、HBO、TVB、动画疯等国外流媒体视频，能够很好地满足大多数场景的应用落地和用户需求，是性价比很高的翻墙梯子，也是近期机场推荐和梯子推荐榜前三。
 
 ## 耐思云官网
-**耐思云官网最新地址**：[https://www.nicecloud.ink/register?aff=7FmXWtn8]
+**耐思云官网最新地址**：[https://nicecloud.cyou/register?aff=7FmXWtn8]
 
 [![奈絲韻.jpg](https://s2.loli.net/2023/11/21/dFAnPqGciwMJo9W.jpg)](https://go.1vpn.cc/nisi)
 
@@ -30,8 +30,8 @@ NiceCloud 耐思云，稳定好用便宜的优质SS/SSR机场，也是入口数�
 耐思云机场由境外专业大型运维实体运营，跑路风险非常小。
 有时候耐思云机场官网打不开，是因为长城防火墙持续的侦测屏蔽，不要担心。
 你可以打开翻墙梯子登录官网，或者通过下面的耐思云机场备用地址进入。
-* [耐思云官网地址](https://www.nicecloud.ink/register?aff=7FmXWtn8)
-* [耐思云官网备用地址一](https://www.nicecloud.ink/register?aff=7FmXWtn8)
+* [耐思云官网地址](https://nicecloud.cyou/register?aff=7FmXWtn8)
+* [耐思云官网备用地址一](https://nicecloud.cyou/register?aff=7FmXWtn8)
 
 
 ## 耐思云机场怎么样
