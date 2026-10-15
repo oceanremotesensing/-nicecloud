@@ -1,5 +1,5 @@
 # Nicecloud (重点！！！阿根廷节点和土耳其节点超级稳定，youtube打折会员专用，你懂的！！！)
-2025 非常受欢迎的机场推荐---奈丝云 [Nicecloud](https://nicecloud.cyou/register?aff=7FmXWtn8)，包含众多稳定高速冷门机场节点
+2025 非常受欢迎的机场推荐---奈丝云 [Nicecloud](https://nicecloud.cyou/register?code=p8iW6CI1)，包含众多稳定高速冷门机场节点
 # 部分节点展示：
 ![节点展示](assets/微信图片_20251111154722_40_17.png)  
 
@@ -8,7 +8,7 @@ NiceCloud 耐思云，稳定好用便宜的优质SS/SSR机场，也是入口数�
 
 ## 耐思云官网
 **耐思云官网最新地址**:
-[官网](https://nicecloud.cyou/register?aff=7FmXWtn8)
+[官网](https://nicecloud.cyou/register?code=p8iW6CI1)
 
 [![奈絲韻.jpg](https://s2.loli.net/2023/11/21/dFAnPqGciwMJo9W.jpg)](https://go.1vpn.cc/nisi)
 
@@ -43,8 +43,8 @@ NiceCloud 耐思云，稳定好用便宜的优质SS/SSR机场，也是入口数�
 耐思云机场由境外专业大型运维实体运营，跑路风险非常小。
 有时候耐思云机场官网打不开，是因为长城防火墙持续的侦测屏蔽，不要担心。
 你可以打开翻墙梯子登录官网，或者通过下面的耐思云机场备用地址进入。
-* [耐思云官网地址](https://nicecloud.cyou/register?aff=7FmXWtn8)
-* [耐思云官网备用地址一](https://nicecloud.cyou/register?aff=7FmXWtn8)
+* [耐思云官网地址](https://nicecloud.cyou/register?code=p8iW6CI1)
+* [耐思云官网备用地址一](https://nicecloud.cyou/register?code=p8iW6CI1)
 
 
 ## 耐思云机场怎么样
